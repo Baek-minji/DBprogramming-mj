@@ -20,3 +20,4 @@
   
  
 유튜브 주소: https://www.youtube.com/watch?v=9Eft2hlA4vE&feature=share
+//노트북 화면에 얼굴이 비춰져서 밝기를 줄이고 찍었더니 영상이 어두운 감이 있습니다. 눈이 힘드시겠지만,, 감안하시고 감상 부탁드립니다 ^-^
